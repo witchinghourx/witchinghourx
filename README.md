@@ -29,7 +29,6 @@
 <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
 
 
-![russiaemote](https://github.com/user-attachments/assets/60fa13bb-afa2-496d-b58c-501ef0637e2e)![italyemote](https://github.com/user-attachments/assets/ad0570a9-5fae-40f7-927f-d077c806246d)
 
 
 
