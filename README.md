@@ -3,6 +3,7 @@
 # <img width="674" height="220" alt="image" src="https://github.com/user-attachments/assets/654a3634-79e2-49f2-a6ed-47e7343b4cfa" />
 # "ちゃんと事実ばかり見ている。"
 <i>"ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ʟᴏᴏᴋɪɴɢ ᴀᴛ ᴛʜᴇ ғᴀᴄᴛs." — ˢʰᵉᵉⁿᵃ ʳⁱⁿᵍᵒ, ᵐᵃ ᶜʰᵉʳⁱᵉ<i>
+[꒰my new winter straw ! ! ! ꒱](https://candidsnow.straw.page/)
 
 <i>𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠<i>
 
